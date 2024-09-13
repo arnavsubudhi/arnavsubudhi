@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **arnavsubudhi20@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TjnIkt4H-QDQ7K59XMqIU0UvJikL1r3S/view?usp=drive_link](https://drive.google.com/file/d/1TjnIkt4H-QDQ7K59XMqIU0UvJikL1r3S/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
